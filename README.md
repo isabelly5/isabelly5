@@ -1,4 +1,4 @@
-### Oi eu sou a bebel de mel e sou MUITOOOOOOOO muitão especial! bjs queride.
+### 😘👌
 
 <!--
 **isabelly5/isabelly5** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
